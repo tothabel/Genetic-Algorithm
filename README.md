@@ -1,1 +1,1 @@
-Itt található a [afdlk](https://youtu.be/XWwDofsb_XQ).
+Itt található a [videó](https://youtu.be/XWwDofsb_XQ).
